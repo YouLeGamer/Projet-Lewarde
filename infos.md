@@ -161,6 +161,4 @@ Locomobile: https://fr.wikipedia.org/wiki/Locomobile
 
 > L'ouvrier de l'industrie apparaît au xviiie siècle lors de l'industrialisation, mais il prend une place importante dans l'économie et la société au xixe siècle.
 
-
-
 https://fr.vikidia.org/wiki/Ouvriers_de_l%27industrie_au_XIXe_si%C3%A8cle
