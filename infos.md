@@ -162,3 +162,17 @@ Locomobile: https://fr.wikipedia.org/wiki/Locomobile
 > L'ouvrier de l'industrie apparaît au xviiie siècle lors de l'industrialisation, mais il prend une place importante dans l'économie et la société au xixe siècle.
 
 https://fr.vikidia.org/wiki/Ouvriers_de_l%27industrie_au_XIXe_si%C3%A8cle
+1-introduction du documentaire 
+    -présentation du sujet
+
+
+2-machinisme
+
+
+3-conséquence du machinisme sur le monde du travail
+
+
+4-conséquence du machinisme sur l’organisation du travail dans la mine et de leconomie
+
+
+5-remerciement et crédit
