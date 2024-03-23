@@ -134,11 +134,7 @@ comme en Irlande où des millions d'Irlandais ont émigré aux États-Unis pour 
 ---
 
 **LOUIS.**
-Comme nous l'avons expliqué, le machinisme et l'arrivée des chemins de fer ont donc amorcé la révolution 
-industrielle qui a apporté avec elle une société nouvelle et de nouvelles idéologies. Elle a 
-remplacé une économie principalement agricole et artisanale par une économie commerciale et 
-industrielle qui persiste encore aujourd'hui.
-*(insérer blague random sur le fait que l'émission est finie)*
+Nous avons donc parlé du machinisme mais comme je l'ai dit plus tôt nous allons aussi parler de l'organisation des mines.
 
 ---
 
